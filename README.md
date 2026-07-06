@@ -24,7 +24,7 @@ The breakthrough wasn't the diagnosis. It was a sentence: **I wasn't running a b
 
 ## What I write about
 
-1. **Deconstructing the Blueprint** — masking in high-pressure finance, lost jobs, firefighting mode
+1. **Deconstructing the Blueprint** — masking in high-pressure finance, burnout, firefighting mode
 2. **Systems, Redesigned** — corporate PM frameworks translated for ADHD life
 3. **The Witty Reality Check** — why "just use a planner" is broken advice
 
