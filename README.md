@@ -33,6 +33,7 @@ The breakthrough wasn't the diagnosis. It was a sentence: **I wasn't running a b
 | | |
 |---|---|
 | Website | [dineshachari.com](https://dineshachari.com) |
+| LinkedIn | [in/dineshachari](https://www.linkedin.com/in/dineshachari/) |
 | YouTube | [@dineshachariyt](https://www.youtube.com/@dineshachariyt) |
 | Instagram | [@dineshacharix](https://www.instagram.com/dineshacharix) |
 | Reddit | [u/dineshacharix](https://www.reddit.com/user/dineshacharix) |
